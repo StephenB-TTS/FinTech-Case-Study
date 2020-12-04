@@ -1,5 +1,5 @@
 # FinTech-Case-Study
-![](https://imgdrop.imgix.net/78cd98232496454f991c20be2d28dc01.svg)
+![](https://mms.businesswire.com/media/20200915005665/en/821244/23/Opendoor_Logotype_RGB_Blue.jpg)
 ## Overview and Origin
 
 ### Name of company
