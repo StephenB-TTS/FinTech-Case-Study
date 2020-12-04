@@ -68,13 +68,13 @@ Making the company more competitive to other iBuyer companies and traditional re
 
 
 ## Sources and Links
-https://www.forbes.com/sites/jeffkauflin/2020/02/12/the-10-biggest-fintech-companies-in-america-2020/?sh=d87383b1259f
-https://www.opendoor.com/w/about
-https://www.opendoor.com/w/guides/how-opendoors-costs-compare-with-traditional-home-sale
-https://www.businesswire.com/news/home/20200915005665/en/
-https://investorplace.com/2020/10/opendoor-is-the-future-amazon-of-the-1-6-trillion-real-estate-market/
-https://archive.curbed.com/2020/2/7/21124809/sell-house-to-zillow-opendoor-what-to-expect
-https://seekingalpha.com/article/4378215-opendoor-play-on-future-of-real-estate-services
-https://www.fool.com/millionacres/real-estate-market/real-estate-trends/
-https://www.daveramsey.com/blog/real-estate-trends
-https://magazine.realtor/daily-news/2020/10/15/8-real-estate-trends-emerging-from-the-pandemic
+### https://www.forbes.com/sites/jeffkauflin/2020/02/12/the-10-biggest-fintech-companies-in-america-2020/?sh=d87383b1259f
+### https://www.opendoor.com/w/about
+### https://www.opendoor.com/w/guides/how-opendoors-costs-compare-with-traditional-home-sale
+### https://www.businesswire.com/news/home/20200915005665/en/
+### https://investorplace.com/2020/10/opendoor-is-the-future-amazon-of-the-1-6-trillion-real-estate-market/
+### https://archive.curbed.com/2020/2/7/21124809/sell-house-to-zillow-opendoor-what-to-expect
+### https://seekingalpha.com/article/4378215-opendoor-play-on-future-of-real-estate-services
+### https://www.fool.com/millionacres/real-estate-market/real-estate-trends/
+### https://www.daveramsey.com/blog/real-estate-trends
+### https://magazine.realtor/daily-news/2020/10/15/8-real-estate-trends-emerging-from-the-pandemic
